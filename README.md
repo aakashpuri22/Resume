@@ -1,2 +1,2 @@
-**Please download the file Aakash Puri_CV to view my CV
+**Please download the file Aakash Puri_CV.pdf to view my CV
 **
